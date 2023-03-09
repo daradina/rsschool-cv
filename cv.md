@@ -4,7 +4,7 @@
 * **Location:** Russia, Khabarovsk
 * **E-mail:** radinaddd@gmail.com
 * **Telegram:** @daradina44
-* **Discord:** 
+
 ## About me:
 I have an analytical mind are detail oriented. I love to work with data, learn new things and develop myself. 
 
